@@ -1,0 +1,2 @@
+# premium-half-nut-001-half-nut-engage-lead-screw-c
+Tired of hunting through scattered notes and messy bins for the right half-nut and lead screw specs? Your mechanical craft projects deserve a dedicated command center.  This Notion template transforms chaos into clarity—organize every half-nut inventory, lead screw dimension, and project engagement in one visual studio. No more misplaced part numbe
